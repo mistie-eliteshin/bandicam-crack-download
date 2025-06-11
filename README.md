@@ -1,0 +1,1 @@
+# bandicam-crack-download
